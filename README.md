@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @neeraj7
-- 👀 I’m interested in yoga.
-- 🌱 I’m currently learning kalaripayattu.
 - 💞️ I’m looking to collaborate on innovative projects.
 - 📫 How to reach me https://www.linkedin.com/in/neeraj-kumar-5a64b870/
 
